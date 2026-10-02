@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I'm Sakura Bhai<br><br>💻 Building digital products, websites & online solutions<br>📈 Helping businesses grow through Digital Marketing & Paid Ads<br>🚀 Working with Meta, Instagram, WhatsApp, Google & YouTube Ads<br>🌐 Exploring Web Development, AI & Automation<br>🎯 Focused on building useful products and growing online brands<br>⚡ Always experimenting with new ideas, tools & technologies<br><br>🧠 What I Do<br>🌐 Website & Web Projects<br>📢 Meta & Instagram Ads<br>💬 WhatsApp Marketing<br>🔎 Google & YouTube Ads<br>📈 SEO & Online Growth<br>🤖 AI & Automation<br>🚀 Digital Product Development<br><br>Build. Grow. Experiment. Repeat.
+👋 Hi, I'm Sakura Bhai<br><br>💻 Websites, Digital Products & AI<br>📈 Meta, Instagram, WhatsApp, Google & YouTube Ads<br>🔎 SEO & Online Growth<br>🤖 AI, Automation & Web Development<br><br>🚀 Build. Grow. Experiment. Repeat.
 
 
 ## 🌐 Socials:
